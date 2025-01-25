@@ -9,5 +9,3 @@
 ![Screenshot 2021-10-13 023855](https://github.com/user-attachments/assets/d1697a3a-2681-4bb9-9873-c0c11e4f3812)
 
 ![Screenshot 2021-10-13 015703](https://github.com/user-attachments/assets/a99d2e52-d40c-408a-8755-bf068cf78190)
-
-![Screenshot 2021-10-13 031128](https://github.com/user-attachments/assets/b5b76bb2-dac9-4340-abe1-c1c6c48e533d)
